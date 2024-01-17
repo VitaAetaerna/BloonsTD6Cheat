@@ -12,4 +12,4 @@ No AntiCheat Bypass, you can easily get banned but bloons is just taking your In
 
 
 
-Yea, i fucking hate Pointers and braindead Users that can't read 💋
+Yea, i fucking hate Pointers💋
